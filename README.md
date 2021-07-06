@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @bitsvital my creator is David Swanson @wildernessfamily
 - 👀 - BitsVital takes Technology and Simplifies it. Have an idea on a video or class? We would love to here from you.
 - 📫 How to reach me ... On Twitter at @bitsvital.
-- 🖥🖥🖥🖥💻 About BitsVital ... BitsVital is where Technoloy into Simplicity™. Find online classes, knowledge base articles, and how to projects.
+- 🧑‍💻👩‍💻About BitsVital ... BitsVital is where Technoloy into Simplicity™. Find online classes, knowledge base articles, and how to projects.
